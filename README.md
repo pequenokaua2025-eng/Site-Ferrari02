@@ -2,4 +2,4 @@
 
 Nikolas Pereira - Kauã silva
 
-https/pequenokaua2025-eng.github.io/Site-Ferrari02
+https://pequenokaua2025-eng.github.io/Site-Ferrari02
